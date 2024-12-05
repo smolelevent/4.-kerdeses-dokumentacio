@@ -1,1 +1,1 @@
-# 4.-kerdeses-dokumentacio
+# Kiss Levente, Szép Dániel, Szabó Richárd
